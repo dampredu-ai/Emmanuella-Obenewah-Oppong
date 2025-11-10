@@ -44,7 +44,7 @@ I believe the future of healthcare depends on **secure digital infrastructure**,
 ### 📫 Connect with Me
 - 🌍 [Instagram](https://instagram.com/obenewa_h)  
 - 💼 [LinkedIn](https://linkedin.com/in/your-link)  
-- ✉️ Email: yourname@email.com  
+- ✉️ Email: dampredu@gmail.com 
 
 ---
 
